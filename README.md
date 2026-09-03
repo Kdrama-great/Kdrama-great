@@ -1,6 +1,6 @@
 $\color{#94052a}\text{★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆}$    
 $\color{#ebbea0}\text{Name: Hai, Hai Anh (or any nickname)
-Age: 21 (I am studying education)}$    
+Age: 21 }$    
 $\color{#ebbea0}\text{I was once diagnosed with severe autism, so I can be a bit unconventional at times, but I am doing well now.}$    
    $\color{#94052a}\text{⊹ ࣪ ˖ ꒰ঌ}$  $\color{#cbb090}\text{I love}$ $\color{#94052a}\text{໒꒱˖ ⊹}$ 
 
