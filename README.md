@@ -1,5 +1,7 @@
-$\color{#94052a}\text{★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆}$
-
+$\color{#94052a}\text{★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆}$    
+$\color{#ebbea0}\text{Name: Hai, Hai Anh (or any nickname)
+Age: 21 (I am studying education)}$    
+$\color{#ebbea0}\text{I was once diagnosed with severe autism, so I can be a bit unconventional at times, but I am doing well now.}$    
    $\color{#94052a}\text{⊹ ࣪ ˖ ꒰ঌ}$  $\color{#cbb090}\text{I love}$ $\color{#94052a}\text{໒꒱˖ ⊹}$ 
 
 <img width="205" height="205" alt="75dc8f4c-70a7-4400-814f-24f1794b9090" src="https://github.com/user-attachments/assets/b971371f-f74c-487a-b5f1-f86a4d82044e" /><img width="205" height="205" alt="image" src="https://github.com/user-attachments/assets/c1bb63d6-d3b9-4645-b96f-7f3f5933f5fa" /><img width="205" height="205" alt="75dc8f4c-70a7-4400-814f-24f1794b9090" src="https://github.com/user-attachments/assets/b971371f-f74c-487a-b5f1-f86a4d82044e" /> 
